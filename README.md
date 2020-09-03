@@ -1,2 +1,0 @@
-dededed
-ouoouioui
